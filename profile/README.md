@@ -1,4 +1,8 @@
 ## Hi there 👋
+<img width="100" alt="KakaoTalk_20231018_024514222" src="https://github.com/Haloqe/.github/assets/71711432/f6617214-1d97-4f34-aa91-aaf824de2dc0">
+<img width="100" alt="KakaoTalk_20231018_024514222" src="https://github.com/Haloqe/.github/assets/71711432/f6617214-1d97-4f34-aa91-aaf824de2dc0">
+<img width="100" alt="KakaoTalk_20231018_024514222" src="https://github.com/Haloqe/.github/assets/71711432/f6617214-1d97-4f34-aa91-aaf824de2dc0">
+<img width="100" alt="KakaoTalk_20231018_024514222" src="https://github.com/Haloqe/.github/assets/71711432/f6617214-1d97-4f34-aa91-aaf824de2dc0">
 
 <!--
 
